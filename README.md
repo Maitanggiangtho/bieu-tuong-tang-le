@@ -12,6 +12,7 @@
 
 # 2\. Ý nghĩa của các biểu tượng trong tang lễ
 
+Xem thêm: https://maitanggiangtho.vn/bieu-tuong-tang-le/
 # Mỗi biểu tượng xuất hiện trong đám tang đều chứa đựng một thông điệp đặc biệt:
 
 # 
